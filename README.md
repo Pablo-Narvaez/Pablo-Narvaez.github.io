@@ -1,2 +1,1 @@
-# Pablo-Narvaez.github.io
-Curriculum
+# Curriculum
