@@ -1,1 +1,1 @@
-# https://pablo-narvaez.github.io/
+# https://pablo-narvaez.github.io/Curriculum.html
